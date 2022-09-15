@@ -1,7 +1,7 @@
 # 📔 Structural-Design-and-Detailing-Support
 **Support on Structural Design and Detailing**<br>
 
-I appreciate your willingness to help. Of course you will be paid for your support.
+I appreciate your willingness to help. Of course you will get paid for your contribution.
 
 ## Task Description
 Here is the description:<br>
