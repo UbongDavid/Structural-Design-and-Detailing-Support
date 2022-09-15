@@ -12,19 +12,19 @@ Here is the description:<br>
 
 ## Basic requirements
 The basic reqirements include:
-- [A good laptop that can run at least the Autocad 2013 software.] 
-- [Regular electric power supply for your laptop.]
+- A good laptop that can run at least the Autocad 2013 software.
+- Regular electric power supply for your laptop.
 
 ## Training
-Structural Design and Detailing Training will be available to those who will like to join. See point 4 in the _"How to Apply"_ section below.
+Structural Design and Detailing Training will also be available to those offering assistance on the projects.
 
 ## How to Apply
-Kindly send a Direct Message (DM) to me on whatsapp through this <a target="_blank" href="https://chat.whatsapp.com/DVOFSwIwIOvAZs2fUWgbMe">link</a>.
+Kindly send a Direct Message (DM) to me on whatsapp through this <a target="_blank" href="https://wa.me/message/SNSWEC3U4E3XK1">link</a>.
 Indicate in your DM the following:
 
-- [The structural member (slabs, beams, columns, footings or staircase) that you feel you are good at detailing.]
-- [A sample drawing in pdf showing your previous details of this member.]
-- [How much you will love to be paid for your contributions.]<br>
+- The structural member (slabs, beams, columns, footings or staircase) that you feel you are good at detailing.
+- A sample drawing in pdf showing your previous details of this member.
+- How much you will love to be paid for your contributions.<br>
 
 ### 🌕 Thanks in advance! I look forward to hearing from you.
 
