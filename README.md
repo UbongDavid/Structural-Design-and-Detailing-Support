@@ -19,7 +19,7 @@ Don't feel intimidated. I will provide the softwares you need and the guidance o
 - Regular electric power supply for your laptop.
 
 ## Training
-Structural Design and Detailing Training will also be available to those offering assistance on the projects.
+Structural Design and Detailing Training will be available to those offering assistance on the projects.
 
 ## How to Join the Team
 Kindly send a Direct Message (DM) to me on whatsapp through this <a target="_blank" href="https://wa.me/message/SNSWEC3U4E3XK1">link</a>.
