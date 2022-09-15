@@ -11,7 +11,7 @@ Here is the description:<br>
 - You are not required to scale or put the drawings in panels. These will be done for you.<br>
 
 ## Basic requirements
-The basic reqirements include:
+Don't feel intimidated. I will provide the softwares you need and the guidance on what to do. The basic reqirements include:
 - A good laptop that can run at least the Autocad 2013 software.
 - Regular electric power supply for your laptop.
 
