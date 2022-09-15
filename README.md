@@ -1,5 +1,5 @@
 # 📔 Structural-Design-and-Detailing-Support
-**Support for Structural Design and Detailling Teams**<br>
+**Support on Structural Design and Detailing**<br>
 
 I appreciate your willingness to help. Of course you will be paid for your support.
 
