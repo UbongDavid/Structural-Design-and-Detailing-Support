@@ -10,6 +10,9 @@ Here is the description:<br>
 - Your work will become the final detail drawings.<br>
 - You are not required to scale or put the drawings in panels. These will be done for you.<br>
 
+## Duration
+   Long term
+   
 ## Basic requirements
 Don't feel intimidated. I will provide the softwares you need and the guidance on what to do. The basic reqirements include:
 - A good laptop that can run at least the Autocad 2013 software.
